@@ -1,6 +1,7 @@
 # Amir Shirley
 
 ### Future Cloud Security Engineer
+Be sure to check out my Medium and LinkedIn for more updated post and updates!!!
 
 ---
 
